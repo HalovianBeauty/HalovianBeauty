@@ -1,6 +1,6 @@
 Temporary until I make my strawpage!
 
-Things I love! : Sunflowers, Lavender, Rabbits, Swans, Spiders, Lambs. My Family! Will <3
+Things I love! : Sunflowers, Lavender, Rabbits, Swans, Spiders, Lambs. My Family, My Pets & Will !! <3
 
 Current Hyperfixation: MLP & HSR!!
 
