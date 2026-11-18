@@ -1,7 +1,7 @@
-Temporary until I make my strawpage!
+BYI (Both Strangers and Friends)
 
-Things I love! : Sunflowers, Lavender, Rabbits, Swans, Spiders, Lambs. My Family, My Pets & Will !! <3
+I get really upset easily, I struggle to tell tones due to both Trauma and Autism.
 
-Current Hyperfixation: MLP & HSR!!
+If someone's not obviously happy or a bit dry, I tend to just assume that they hate me or that they're angry due to how some adults in my life used to treat me
 
-I try to stay as positive as I can! and I LOVE talking to people (Unless I'm a little upset but typically my pony name would say iwc if i'm upset)
+For my own sake and for the people around me, I'd prefer If people interact first. I don't want to interact with someone only for them to be overly dry or upset that I interacted with them, I'm sorry. I love all my friends, I really do. It's just I don't want to upset people around me because I'm overly sensitive
