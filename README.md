@@ -1,4 +1,4 @@
-BYI (Both Strangers and Friends)
+BYI (Both Strangers and Friends) 
 
 I get really upset easily, I struggle to tell tones due to both Trauma and Autism.
 
@@ -6,6 +6,6 @@ If someone's not obviously happy or a bit dry, I tend to just assume that they h
 
 For my own sake and for the people around me, I'd prefer If people interact first. I don't want to interact with someone only for them to be overly dry or upset that I interacted with them, I'm sorry. I love all my friends, I really do. It's just I don't want to upset people around me because I'm overly sensitive
 
-^ This doesn't really apply to My Parents, Siblings, Boyfriend & Kids though
+^ This doesn't really apply to My Parents, Siblings, Boyfriend & Kids though (I do love you all though of course!!)
 
 I will crown people and compliment ponies, Just not all that often. Have a Nice Day/Night & Take Care! (/≧▽≦)/
